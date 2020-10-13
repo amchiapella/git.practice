@@ -1,1 +1,1 @@
-My favorite lake is Tapto Lake
+My favorite lake is Lake Champlain 
